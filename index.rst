@@ -35,7 +35,7 @@ How to Get a Geico Insurance Quote (Step-by-Step)
 
 Step 1: Open your browser.  
 
-Step 2: Visit the safe website www.geico.com <a href="https://link72.com/?CqqyiIcugtWk9T2kuV5NOWeefDIYBbQ7Tnt0vfbuKlP0esVSt40umO5cWmFZFiUSWK"</a>
+Step 2: Visit the safe website www.geico.com  `https://www.geico.com <https://link72.com/?EakxeVBg7GbEVmj9SqnEgiM3Oeg4uLlgsMUmwxDdVkWJIN7SaXFma516kgGAabTpjFBf2S>`_
 
 Step 3: Enter your ZIP code.  
 
