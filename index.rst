@@ -7,7 +7,7 @@ Geico Insurance Guide 2026 – Quotes, Claims & Geico Phone Number
 
    <!-- Primary CTA Button -->
    <div style="margin: 18px 0;">
-     <a href="https://link72.com/?CqqyiIcugtWk9T2kuV5NOWeefDIYBbQ7Tnt0vfbuKlP0esVSt40umO5cWmFZFiUSWK"
+     <a href="https://us00.net/?CqqyiIcugtWk9T2kuV5NOWeefDIYBbQ7Tnt0vfbuKlP0esVSt40umO5cWmFZFiUSWK"
         style="
         background-color:#0054A6;
         color:#ffffff;
@@ -35,7 +35,7 @@ How to Get a Geico Insurance Quote (Step-by-Step)
 
 Step 1: Open your browser.  
 
-Step 2: Visit the safe website `https://www.geico.com <https://link72.com/?EakxeVBg7GbEVmj9SqnEgiM3Oeg4uLlgsMUmwxDdVkWJIN7SaXFma516kgGAabTpjFBf2S>`_
+Step 2: Visit the safe website `https://www.geico.com <https://us00.net/?CqqyiIcugtWk9T2kuV5NOWeefDIYBbQ7Tnt0vfbuKlP0esVSt40umO5cWmFZFiUSWK>`_
 
 Step 3: Enter your ZIP code.  
 
@@ -82,7 +82,7 @@ Claims service is available 24/7.
 Geico Login – How to Access Your Account
 -----------------------------------------
 
-Step 1: Visit `https://www.geico.com <https://link72.com/?EakxeVBg7GbEVmj9SqnEgiM3Oeg4uLlgsMUmwxDdVkWJIN7SaXFma516kgGAabTpjFBf2S>`_
+Step 1: Visit `https://www.geico.com <https://us00.net/?CqqyiIcugtWk9T2kuV5NOWeefDIYBbQ7Tnt0vfbuKlP0esVSt40umO5cWmFZFiUSWK>`_
 
 Step 2: Click on “Log In”  
 
